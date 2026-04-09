@@ -2,4 +2,4 @@
 
 drew
 
-asex (not asex i hate all equally)
+asex (not but asex)
